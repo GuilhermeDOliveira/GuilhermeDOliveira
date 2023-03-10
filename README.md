@@ -28,5 +28,5 @@ I ask that you give me the opportunity to improve my knowledge/skills and become
   
 </div>
 
-
+e-mail for contacts: guilherme.augusto.d.oliveira@gmail.com
 
